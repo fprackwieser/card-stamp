@@ -1,0 +1,1 @@
+Ein Stempel für Visitenkarten.
